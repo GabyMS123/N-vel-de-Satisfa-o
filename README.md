@@ -1,0 +1,1 @@
+# N-vel-de-Satisfa-o
